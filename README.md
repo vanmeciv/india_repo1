@@ -1,4 +1,4 @@
-# [India 23 Classroom](https://zoom.us/j/98587999928?pwd=UnFEZW50V0MzTHVOSjd5cGY3ODlVZz09)
+# [India 23 Classroom]
 
 ---
 Yesterday's [[Notes (11-06-23)]]
